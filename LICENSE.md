@@ -1,4 +1,4 @@
-# 
+# updated NFT Scanner for blur sniper bot | early-mint-access & wash-trading-detection offers the most advanced blur sniper bot, with early-mint-access and wash-trading-detection.
 
 
 
